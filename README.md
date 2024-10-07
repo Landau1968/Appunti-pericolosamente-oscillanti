@@ -1,2 +1,2 @@
 # Appunti-pericolosamente-oscillanti
-AAAAAPPPPUUUUUUNNNNTIIIIII
+Ciao a tutti/e siamo tre studenti che frequentano l'università di Fisica. Vogliamo creare un'ampia raccolta di appunti di matematica, fisica, teoria di laboratorio e tutto quello che può essere di materia scientifica. Tutto il materiale che carichiamo è creato escusivamente da noi, dagli appunti scritti seguendo lezioni in classe e talvolta integrando con degli appunti dei professori. Siamo aperti a critiche e aiuti esterni. 
