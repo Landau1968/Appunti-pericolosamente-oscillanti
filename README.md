@@ -1,0 +1,2 @@
+# Appunti-pericolosamente-oscillanti
+AAAAAPPPPUUUUUUNNNNTIIIIII
